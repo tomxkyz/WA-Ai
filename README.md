@@ -1,1 +1,1 @@
-# WA-Ai
+Free cuy,ambil aja
